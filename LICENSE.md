@@ -1,1 +1,0 @@
-# All rights served to the copyright holder
